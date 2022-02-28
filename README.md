@@ -1,0 +1,4 @@
+- Hi, I’m @Nikrox
+- I am interested in programming and creating video games.
+- You can contact me on Twitter (@/NikroxIsHere)
+- :D
